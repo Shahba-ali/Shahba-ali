@@ -1,3 +1,11 @@
+## Hi I'm Shahba here I will provide link to my all social accounts and my info of interest 
+
+
+
+
+
+
+
 - 👋 Hi, I’m @Shahba-ali
 - 👀 I’m interested in Sicence Data Analyst
 - 🌱 I’m currently learning Software Development 
